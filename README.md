@@ -1,1 +1,1 @@
-# faith-matter
+# matter of faith
